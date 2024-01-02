@@ -2,4 +2,4 @@
 
 Working on this...
 
-🔭 Take a look at my portfolio! [juancrrn.io](https://juancrrn.io)
+🔭 Find me [on LinkedIn](https://linkedin.com/in/juancrrn)!
